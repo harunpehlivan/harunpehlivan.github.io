@@ -1,2 +1,1 @@
-# harunpehlivan.github.io
-HP IT GROUP GLOBAL PROFESYONEL IT GROUP
+<a href="https://harunpehlivantebimtebitagem.carrd.co" target="_blank"> FOUNDER,CEO BLOGGER</a> HARUN PEHLİVAN
